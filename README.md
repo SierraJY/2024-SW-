@@ -9,4 +9,3 @@
 ![공모전2_page-0007](https://github.com/user-attachments/assets/4fbb2915-eba5-413e-b40f-d2321e19056c)
 ![공모전2_page-0008](https://github.com/user-attachments/assets/77a91a5f-60bf-431f-8b38-16f1881903b0)
 ![공모전2_page-0009](https://github.com/user-attachments/assets/1a8a8ba4-8bba-43f1-923b-54bc1b6274a9)
-![공모전2_page-0010](https://github.com/user-attachments/assets/365ca649-f6f8-4d4a-a11e-7b4758016b80)
